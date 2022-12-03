@@ -1,0 +1,1 @@
+See the challenge here : https://coderpad.io/blog/interviewing/world-cup-data-analytics-tiny-interview/?utm_medium=social&utm_source=linkedin&utm_campaign=22-Q4-Social-LinkedIn-TOFU-All-Global-MathisHammel
